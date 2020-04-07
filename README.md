@@ -1,1 +1,0 @@
-# smanitech.github.io
